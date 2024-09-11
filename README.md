@@ -1,5 +1,6 @@
 # Isbllvt
-### Hi! I'm Isabelle! Aspiring Developer. ✨ 
+### Yo, What´s up?
+I'm Isabelle! Aspiring Developer. ✨ 
 Computer Science Student 📚
 ###### just a young dreamer ^_^
 
